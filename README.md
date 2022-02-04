@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @PikuPaka
+- 👀 I’m interested in Cookies
+- 📫 Explore me https://opensea.io/PikuPaka
